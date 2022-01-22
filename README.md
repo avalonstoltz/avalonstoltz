@@ -10,8 +10,8 @@
 
 - 📫 How to reach me:
   * [Twitter](https://www.twitter.com/@AvalonStoltz)
-  * [Instagram](https://www.instagram.com/AvalonStoltz)
-  * [Company](https://groups.google.com/AvalonStoltz)
+  * [Apex Network](https://www.joinapex.com/i/b8wuxd)
+  * [Company](https://groups.google.com/g/AvalonStoltz)
   * [Snapchat](https://www.snapchat.com/add/avalon.m.stoltz)
   * [Vero](https://www.vero.co/AvalonStoltz)
 
